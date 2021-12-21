@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Leon8607
+- 👀 I’m interested in videogames, blender and metal music.
+- 🌱 I’m currently learning to create 3D movies, programming.
+- 📫 How to reach me: leon.mueller@ict.csbe.ch
